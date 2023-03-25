@@ -4,4 +4,4 @@
 
 📫 邮箱. zhiming.hao@qq.com
 
-✏️ 个人网站. [Let's go!](https://www.icehim.com/)
+✏️ 个人网站. [icehim](https://www.icehim.com/)
